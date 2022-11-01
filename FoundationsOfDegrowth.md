@@ -62,8 +62,12 @@ and present colonial exploitation in the Global South
 
 There is an ongoing debate of the amount of acceptable inequality and the means to achieve more equality and dignity.
 
-### DEGROWTH STRATEGIES AND ACTORS
-
-
 
 https://pdfs.semanticscholar.org/3496/49723c2ff2366f421c6c9db2fc6e37d650dc.pdf?_ga=2.79973335.1360509144.1667247152-579681221.1665915425
+
+### Kallis what is degrowth?
+
+Experts accumulate power at the expense of
+people. Illich’s slogan was that socialism can then only arrive by bicycle. A
+complex technological system cannot be democratic or egalitarian
+
