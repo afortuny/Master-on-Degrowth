@@ -43,4 +43,27 @@ degrowth, all degrowth actors question the capacity of technological innovation 
 Degrowth dwells on many ‘non-technical’
 proposals for reducing material and energy lows outside the modernisation approach which tends to discard the option of setting some limits to technologies
 
+*Democracy*
+
+Response to the lack of democratic debates on economic development, growth, technological innovation and advancement
+
+It is a open debate whether current institutions ought to be kept
+
+*Justice*
+
+It intentionally pursues and explores ways to make justice and sustainability compatible.
+
+Degrowth opts for less competition, large scale redistribution, sharing and reduction of excessive incomes. If poverty is perceived in terms of relative consumption, it can never be ‘eradicated’ by economic growth as it only changes the scale but not the proportions of wealth which individuals possess
+
+Justice requires a degrowth of the living standards of the rich classes of the North and South
+
+Repairing past injustice. A good illustration is the concept of ecological debt, or the demand that the Global North pays for past
+and present colonial exploitation in the Global South
+
+There is an ongoing debate of the amount of acceptable inequality and the means to achieve more equality and dignity.
+
+### DEGROWTH STRATEGIES AND ACTORS
+
+
+
 https://pdfs.semanticscholar.org/3496/49723c2ff2366f421c6c9db2fc6e37d650dc.pdf?_ga=2.79973335.1360509144.1667247152-579681221.1665915425
