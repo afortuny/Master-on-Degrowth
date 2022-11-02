@@ -90,6 +90,28 @@ Degrowth is a frame for a social movement that puts a the center of the problems
 Is degrowth a movement or a community? Does it have the scale to be called a movement? 
 
 
+**Where did degrowth come from?
+
+Key milestones: Limits to growth, Andre Gorz, Georgscu-Roegen, Serge Latouche...
+
+Sources:  environmentalism, ecological ecomics, post development, autonomy, social justice
+
+
+*Questions of the session*
+
+Assuming degrowth is successfully implemented in a diverse set of ways, reducing also its military and technological efforts. Wouldn't we have the same fate as  indigenous communities in america, or Tibet?
+
+Will Degrowth deliver its promise if only few regions keep follow the growth dogma? Does the voluntary simplicity and life below planetary boundaries of a few ensure that these community live in a healthy ecosystem? 
+
+What is the degrowth community state about using sabotage of polluting /dangerous infraestructure? 
+
+How far is degrowth willing to go if the politic institutions keep failing to provide justice and healthy ecosystems?
+
+What space have current large institutions and companies in degrowth? How does reformist degrowth manage large instutitions and firms?
+
+
+
+
 
 
 
