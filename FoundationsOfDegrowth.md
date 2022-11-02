@@ -79,5 +79,21 @@ complex technological system cannot be democratic or egalitarian
 
 A critique of the desirability of economic growth. It is a slogan that challenges the hegemony of growth.
 
+A voluntary shrinking of production and consumption in dustrialized countries aimed at ecological sustainability, social justice and well being
+
+An egalitarian social transformaton where the energy use, material and waste decreases while welfare improve
+
+Serge Latouche Rs Degrowth: Reevaluate, Reconceptualize, Restructure, Redistribute, Relocalize, Reduce, Reuse, Recycle
+
+Degrowth is a frame for a social movement that puts a the center of the problems the pursue of growth
+
+Is degrowth a movement or a community? Does it have the scale to be called a movement? 
+
+
+
+
+
+
+
 
 
