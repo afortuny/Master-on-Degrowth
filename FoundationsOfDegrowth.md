@@ -71,3 +71,13 @@ Experts accumulate power at the expense of
 people. Illich’s slogan was that socialism can then only arrive by bicycle. A
 complex technological system cannot be democratic or egalitarian
 
+# Class Notes 2nd November 2022
+-> We cover our understanding of degrowth, which different focus but pretty harmonic understanding of its contributions to the current paradigm of growthism
+-> Key point and the reason to study degrowth: our crisis have a political dimension, and as such, is political ecology the academic 
+
+**What is Degrowth - summary from Giorgios Kallis
+
+A critique of the desirability of economic growth. It is a slogan that challenges the hegemony of growth.
+
+
+
