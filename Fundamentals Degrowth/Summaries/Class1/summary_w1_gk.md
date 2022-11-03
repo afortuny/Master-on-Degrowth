@@ -140,6 +140,7 @@ Generally degrowth challenges the hegemony of growth and calls for a democratica
 
 Thus degrowth is neither a mere criticism of economic growth, nor a proposal for a decrease of GDP.
 
+Finally, degrowth is an example of an activist-led science, where an activist slogan is slowly consolidating into a concept that can be analysed and discussed in the academic arena.
 
 ### Kallis what is degrowth?
 
