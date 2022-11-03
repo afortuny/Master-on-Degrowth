@@ -255,3 +255,25 @@ The emergence of the extraordinary productive capacity that characterises capita
 no refinement, no comfort, and no benefit to those who may be possessed of wealth.
 
  The proponents of capitalism themselves believed it was necessary to impoverish people in order to generate growth.
+
+
+
+
+# Notes on the class 3rd November
+
+* Capitalism is not natural
+* Countries with lower GDP do not need to catch up
+* Countries with lower GDP are ask to develop capitalist markets to catch up
+* Defenders of capitalism do not stablish the necessary connection between the wealth of the north and colonialism & imperialism
+* Capitalism is the mutation of feudalism, not its liberator
+* Peasants revolutions happened already in 1200 in England, France and Germany, improving the living conditions of them and reduce the extractive rents to lords
+* The Black Plague exarcerbate the barganing power of peasants, and hence the elite wish to backlash, in the process called Enclosure.
+* The Enclosure is an extremely violtent process to avoid peasants to thrive and even live
+* The Enclosure creates a massive migration and the expansion of the concept of poverty and scarcity
+* Enclosure was an effort to push wages down as it make previous autonomous peasant unemployed and unproductive
+* Capitalism is not democratic, even if implemented in a democratic country, as the decision of what to produce are made by a few
+* Capitalism is organized on increasing levels of production or growth
+* Growth is used for profit seeking, not to improve any social wellbeing
+* 
+
+* 
