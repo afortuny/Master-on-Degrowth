@@ -93,6 +93,9 @@ atives, alternative (so called ethical) banks or credit cooperatives, decentrali
 * The major idea being if less time is spent on formal work and consumption, more time can be dedicated to other activities
 which are fundamental to one’s well-being, such as social relations, political participation, physical exercise, spirituality and contemplation. Such a shift will potentially be less environmentally harmful.
 
+* Latouche (2009) we are living not only in a growth economy, but in a growth society. Therefore degrowth implies a societal transformation. While many actors oppose or challenge some institutions, they often propose to
+act within existing ones.
+
 ### Kallis what is degrowth?
 
 Experts accumulate power at the expense of
