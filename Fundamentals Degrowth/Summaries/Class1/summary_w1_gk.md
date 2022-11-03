@@ -1,4 +1,4 @@
-## Class 1 – Introduction to Degrowth: what is it and where does it come from?
+## Class 1.1 – Introduction to Degrowth: what is it and where does it come from?
 
 ### What is Degrowth? From an Activist Slogan to a Social Movement
 
@@ -177,6 +177,81 @@ complex technological system cannot be democratic or egalitarian
 Assuming degrowth is successfully implemented in a diverse set of ways, reducing also its military and technological efforts. Wouldn't we have the same fate as  indigenous communities in america, or Tibet?
 
 
+# Class 1.2 Appropriation in the colonial world economy
+
+## Summary of Chapter 1 from the book Less is More - "Capitalism a Creation Story" 
+
+* 97% of that time our ancestors lived in relative harmony with the Earth’s ecosystems
+
+*  Our crisis has nothing to do with humans as such. It has to do with the dominance of a particular economic
+system: one that is recent in origin, which developed in particular places at a particular time in history, and which has not been adopted to the same extent by all societies. As the sociologist Jason Moore has pointed out, this isn’t the Anthropocene it’s the Capitalocene.
+
+* While markets have been around for many thousands of years, in di erent times and places, capitalism is relatively recent
+
+* The goal of capital is to extract and accumulate surplus, it has to get these things for as cheap as
+possible. In other words, capital works according to a simple, straightforward formula: take more – from nature and from
+labour – than you give back
+
+*  Capitalism didn’t just ‘emerge’. There was no smooth, natural ‘transition’ to capitalism, and it has nothing to do with human nature.
+
+* It wasn’t the rise of capitalism that put an end to feudalism. That at victory belongs, remarkably enough, to a courageous
+struggle fought by a long tradition of everyday revolutionaries who have for some reason been almost entirely forgotten.
+
+* Due to the relative abundance of land and limited labor, Commoners began to realise that this was their
+chance: they had an opportunity to change the very foundations of the social and political order.  ey grew more hopeful, more confident, and the rebellions gained steam.
+
+* Wages rose to levels higher than ever before in recorded history, doubling or even tripling in most regions and in some cases rising as much a s sixfold.Rents declined, food became cheap, and nutrition improved. Workers were able to bargain for shorter working hours and weekends off , plus benefits like meals on the job and payment for each mile they had to travel to and from work.
+
+* Once they won direct control of the land, free peasants were able to maintain a more reciprocal relationship with nature: they managed pastures and commons collectively, through democratic assemblies, with careful rules that regulated tillage, grazing and forest use.
+
+* We often assume that capitalism emerged somehow naturally from the collapse of feudalism, but in fact
+such a transition would have been impossible. Capitalism requires elite accumulation: piling up excess wealth for large-scale investment. But the egalitarian conditions of post- feudalist society –  self- sufficiency, high wages, grassroots democracy and collective management of resources –  were inimical to the possibility of elite accumulation. Indeed, this is exactly what elites were complaining about. 
 
 
+* Economists have always recognised that some kind of  initial accumulation was necessary for the rise of capitalism. Adam Smith called this ‘previous accumulation’, and claimed that it came about because a few people worked really
+hard and saved their earnings  –  an idyllic tale that still gets repeated in economics textbooks. But historians see it as
+naïve.  This was no innocent process of saving. It was a process of plunder. Karl Marx insisted on calling it ‘primitive accumulation’, to highlight the barbaric nature of the violence it
+entailed.
 
+* From the 1500s to the 1700s real wages declined by as much as 70%.Nutrition deteriorated and starvation became
+commonplace
+
+*  The First century of the Industrial Revolution was characterised by a striking deterioration in life expectancy, down to levels not seen since the Black Death in the fourteenth century. 
+
+### Growth as colonisation
+
+In the decades that inaugurated the rise of capitalism, enclosure and colonisation were deployed as part of the same strategy.
+
+Colonialism and expropiation provided some of the surplus that ended up invested in the Industrial Revolution; it enabled the purchase of land- based goods from the East, which allowed Europe to shifts population from agriculture to industrial production; and it funded the military expansion that powered further rounds of colonial conquest.
+
+Colonisation also provided the key raw materials that fuelled the Industrial Revolution.
+
+
+Colonial mining, logging, and plantation monoculture caused ecological damage on a scale that
+was, up to that point, historically unprecedented.
+
+The rise of capitalism in Europe –  and Europe’s Industrial Revolution –  did not emerge ex nihilo. It hinged on commodities that were produced by enslaved workers, on lands stolen from colonised peoples, and processed in factories staffed by European peasants
+
+Under capitalism, growth always requires new frontiers from which to extract uncompensated value. It is, in other words, intrinsically colonial in character.
+
+By destroying self- suffcient economies, they created not only a mass of workers but also a mass of consumers –  people wholly dependent on capital for food, clothes and other essential goods.
+
+
+### The paradox of artificial scarcity
+
+So to retain their access to land peasants had to devise ways to intensify their production, working longer
+hours and extracting more from the soil each year. Those who fell behind in this race would lose their tenancy rights and face starvation. This is put peasants in direct competition with one another, with their own kin and neighbours, transforming what had been a system of collective co-operation into one organised around desperate antagonism.
+
+Faced with the constant threat of replacement, workers were under pressure to produce as much as was physically possible; they regularly worked for sixteen hours a day, significantly longer than they had worked prior to enclosure.
+
+Any increase in total output, he said, was a contribution to the ‘greater good’ –  the betterment of humanity.
+The same logic was used to justify colonisation.
+
+None of the gains from the surge in labour productivity went back to the workers themselves; indeed, wages declined during the enclosure period. 
+
+The emergence of the extraordinary productive capacity that characterises capitalism depended on creating and maintaining conditions of artificial scarcity. Scarcity –  and the threat of hunger –  served as the engine of capitalist growth. The  scarcity was artificial in the sense that there was no actual deficit of resources: all the same land and forests and waters remained, just as they always had, but people’s access to them was suddenly restricted.
+
+ It is the source of wealth, since without poverty, there could be no labour; there could be no riches,
+no refinement, no comfort, and no benefit to those who may be possessed of wealth.
+
+ The proponents of capitalism themselves believed it was necessary to impoverish people in order to generate growth.
