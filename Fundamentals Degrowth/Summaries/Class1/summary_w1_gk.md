@@ -81,7 +81,17 @@ energy and materials cannot grow at the interest rate necessary to pay off debts
 
 * Others challenge the basic income approach and underline the importance of merit and contribution to society
 
-https://pdfs.semanticscholar.org/3496/49723c2ff2366f421c6c9db2fc6e37d650dc.pdf?_ga=2.79973335.1360509144.1667247152-579681221.1665915425
+## Strategies and actors
+
+* Some actors call for a complete overhaul of the existing institutions, while others call for their transformation or partial conservation at both local and higher levels
+
+* Degrowth actors are often engaged in oppositional activism such as campaigners working to stop the expansion of highways, airports, high speed trains and other infrastructures.
+
+* Practitioners on the other hand promote local, decentralised, small scale and participatory alternatives such as cycling, reuse, vegetarianism or veganism, co-housing, agro-ecology, eco-villages, solidarity economy, consumer cooper-
+atives, alternative (so called ethical) banks or credit cooperatives, decentralised renewable energy cooperatives.
+
+* The major idea being if less time is spent on formal work and consumption, more time can be dedicated to other activities
+which are fundamental to one’s well-being, such as social relations, political participation, physical exercise, spirituality and contemplation. Such a shift will potentially be less environmentally harmful.
 
 ### Kallis what is degrowth?
 
