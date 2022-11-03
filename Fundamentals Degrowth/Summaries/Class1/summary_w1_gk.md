@@ -138,6 +138,7 @@ of strategies within degrowth.
 
 Generally degrowth challenges the hegemony of growth and calls for a democratically led redistributive downscaling of production and consumption in industrialised countries as a means to achieve environmental sustainability, social justice and well-being.
 
+Thus degrowth is neither a mere criticism of economic growth, nor a proposal for a decrease of GDP.
 
 
 ### Kallis what is degrowth?
