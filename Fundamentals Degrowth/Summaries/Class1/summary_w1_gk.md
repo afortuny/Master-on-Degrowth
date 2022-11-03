@@ -288,4 +288,5 @@ no refinement, no comfort, and no benefit to those who may be possessed of wealt
 * Only humans are subjects, nature is an object
 * This ideology against the nature world allow the consideration os humans as masters and ultimate possesors of nature
 * Nature is defined as external to humans, from animist to dualist, showed in economics in the form of externalities /resources/raw materials /ecosystem services / the environment... nature, the ultimate commodity
-* 
+* The women suffer similar fate as nature, being added into this dualism to justify its explotiation
+* A critical idea to expand capitalism is the unequal exchange of relationships, ensuring the colonies remain dependent of the colonizers
