@@ -108,6 +108,16 @@ act within existing ones.
 
 * It remains unclear how the socio-ecological transformation might actually take place at macro scales and which institutions should be involved.
 
+## Discussion
+* The classification of sources presented in this article for analytical
+purposes should not be seen as implying hermetic compartments.
+
+* The overview of streams of thought feeding into the river of the degrowth movement is not exhaustive. Feminism, political ecology, non-violence... are part of it too
+
+* Some followers of Marx have argued that degrowth does not explicitly or sufficiently position itself against capitalism
+
+* Complexity and multi-dimensionality of degrowth can sometimes be difficult to communicate, and overwhelming to people looking for a single guide to practical action.
+
 ### Kallis what is degrowth?
 
 Experts accumulate power at the expense of
