@@ -37,42 +37,49 @@ nature, and a challenge to the idea that decoupling of ecological impacts from e
 
 *Voluntary simplicity, reducing individual consumption while seeing simple life as liberating and profound rather than restraining and limiting is an important vision within this source
 
-*Bioeconomics*
+**Bioeconomics**
 
-For Georgescu, human activity transforms energy and materials of low entropy or good quality into waste and pollution which are unusable and have
-high entropy. Even the inlow of low-entropy solar energy is limited in the
-sense that it falls in a dispersed fashion on the earth. Degrowth can thus slow
-down the process of material degradation
+* For Georgescu Roegen, human activity transforms energy and materials of low entropy or good quality into waste and pollution which are unusable and have high entropy. Even the inlow of low-entropy solar energy is limited in the
+sense that it falls in a dispersed fashion on the earth. 
 
-The bioeconomic arguments for degrowth, including the decreasing energy
-return on investment and the imminent peak oil,14 are often cited in academic
-and political debate
+* Degrowth can thus slow down the process of material degradation, as a steady state economy is not enough in Western Countries
 
-While technological innovation is a source of debate in
-degrowth, all degrowth actors question the capacity of technological innovation to overcome biophysical limits and sustain ininite economic growth.
+* The decreasing energy return on investment and the imminent peak oil, are often cited in academic and political debate
 
-Degrowth dwells on many ‘non-technical’
-proposals for reducing material and energy lows outside the modernisation approach which tends to discard the option of setting some limits to technologies
+* The financial system confuses expansion of credit with the creation of real wealth, while the real economy of
+energy and materials cannot grow at the interest rate necessary to pay off debts.
 
-*Democracy*
+* While technological innovation is a source of debate in degrowth, all degrowth actors question the capacity of technological innovation to overcome biophysical limits and sustain ininite economic growth.
 
-Response to the lack of democratic debates on economic development, growth, technological innovation and advancement
+* Degrowth dwells on many ‘non-technical’ proposals for reducing material and energy usage outside the modernisation approach which tends to discard the option of setting some limits to technologies
 
-It is a open debate whether current institutions ought to be kept
+* Jevons paradox indicates that eco-efficiency may lead to increased consumption or production because technologies suppress limits
 
-*Justice*
+**Democracy**
 
-It intentionally pursues and explores ways to make justice and sustainability compatible.
+* Response to the lack of democratic debates on economic development, growth, technological innovation and advancement
 
-Degrowth opts for less competition, large scale redistribution, sharing and reduction of excessive incomes. If poverty is perceived in terms of relative consumption, it can never be ‘eradicated’ by economic growth as it only changes the scale but not the proportions of wealth which individuals possess
+* It is a open debate whether current institutions ought to be kept
 
-Justice requires a degrowth of the living standards of the rich classes of the North and South
+* "Democracy can only exist by (and with) self-"
 
-Repairing past injustice. A good illustration is the concept of ecological debt, or the demand that the Global North pays for past
-and present colonial exploitation in the Global South
+**Justice**
 
-There is an ongoing debate of the amount of acceptable inequality and the means to achieve more equality and dignity.
+* social comparison based on the existence and promotion of rich-people lifestyles, has been responsible for social and environmental crises. Setting a maximum income, or maximum wealth, to weaken envy as a motor of consumerism.
 
+* It intentionally pursues and explores ways to make justice and sustainability compatible.
+
+* Degrowth opts for less competition, large scale redistribution, sharing and reduction of excessive incomes. If poverty is perceived in terms of relative consumption, it can never be ‘eradicated’ by economic growth as it only changes the scale but not the proportions of wealth which individuals possess
+
+* Justice requires a degrowth of the living standards of the rich classes of the North and South
+
+* Repairing past injustice. A good illustration is the concept of ecological debt, or the demand that the Global North pays for past and present colonial exploitation in the Global South
+
+* The equality approach to justice in the context of degrowth implies resource and wealth redistribution both within and between North and South economies. Justice here is understood as a concern for a fair distribution of economic, social and environmental goods and bads at all time-lines
+
+* Finally, some understand justice as preventing misery by establishing minimum standards and a basic income for all.
+
+* Others challenge the basic income approach and underline the importance of merit and contribution to society
 
 https://pdfs.semanticscholar.org/3496/49723c2ff2366f421c6c9db2fc6e37d650dc.pdf?_ga=2.79973335.1360509144.1667247152-579681221.1665915425
 
