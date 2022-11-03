@@ -10,7 +10,7 @@
 * degrowth is not focused only on economics, rather a system of ideas and values. It claims that some social and environmental crisis are related to economic growth.
 * does not embrace one single philosophical current
 
-**Sources**
+##**Sources**
 
 
 **Ecology**
