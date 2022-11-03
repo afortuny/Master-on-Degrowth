@@ -149,42 +149,33 @@ people. Illich’s slogan was that socialism can then only arrive by bicycle. A
 complex technological system cannot be democratic or egalitarian
 
 # Class Notes 2nd November 2022
--> We cover our understanding of degrowth, which different focus but pretty harmonic understanding of its contributions to the current paradigm of growthism
--> Key point and the reason to study degrowth: our crisis have a political dimension, and as such, is political ecology the academic 
 
 **What is Degrowth - summary from Giorgios Kallis
 
-A critique of the desirability of economic growth. It is a slogan that challenges the hegemony of growth.
+* A critique of the desirability of economic growth. It is a slogan that challenges the hegemony of growth.
 
-A voluntary shrinking of production and consumption in dustrialized countries aimed at ecological sustainability, social justice and well being
+* A voluntary shrinking of production and consumption in industrialized countries aimed at ecological sustainability, social justice and well being
 
-An egalitarian social transformaton where the energy use, material and waste decreases while welfare improve
+* An egalitarian social transformaton where the energy use, material and waste decreases while welfare improves
 
-Serge Latouche Rs Degrowth: Reevaluate, Reconceptualize, Restructure, Redistribute, Relocalize, Reduce, Reuse, Recycle
+* Serge Latouche Rs Degrowth: Reevaluate, Reconceptualize, Restructure, Redistribute, Relocalize, Reduce, Reuse, Recycle
 
-Degrowth is a frame for a social movement that puts a the center of the problems the pursue of growth
+* Degrowth is a frame for a social movement that puts a the center of the problems the pursue of growth
 
-Is degrowth a movement or a community? Does it have the scale to be called a movement? 
+* Is degrowth a movement or a community? Does it have the scale to be called a movement? 
 
 
 **Where did degrowth come from?
 
-Key milestones: Limits to growth, Andre Gorz, Georgscu-Roegen, Serge Latouche...
+* Key milestones: Limits to growth, Andre Gorz, Georgscu-Roegen, Serge Latouche...
 
-Sources:  environmentalism, ecological ecomics, post development, autonomy, social justice
+* Sources:  environmentalism, ecological ecomics, post development, autonomy, social justice
 
 
 *Questions of the session*
 
 Assuming degrowth is successfully implemented in a diverse set of ways, reducing also its military and technological efforts. Wouldn't we have the same fate as  indigenous communities in america, or Tibet?
 
-Will Degrowth deliver its promise if only few regions keep follow the growth dogma? Does the voluntary simplicity and life below planetary boundaries of a few ensure that these community live in a healthy ecosystem? 
-
-What is the degrowth community state about using sabotage of polluting /dangerous infraestructure? 
-
-How far is degrowth willing to go if the politic institutions keep failing to provide justice and healthy ecosystems?
-
-What space have current large institutions and companies in degrowth? How does reformist degrowth manage large instutitions and firms?
 
 
 
