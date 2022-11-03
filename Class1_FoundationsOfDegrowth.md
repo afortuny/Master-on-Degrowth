@@ -2,7 +2,7 @@
 
 ### What is Degrowth? From an Activist Slogan to a Social Movement
 
-**Definitions**
+##**Definitions**##
 
 * missile word that sparks a debate of our society, repolitizing desired socio environmental futures
 * it is a slogan agains economic growth and green growth, breaking with the false consensus of sustainable development
@@ -10,7 +10,7 @@
 * degrowth is not focused only on economics, rather a system of ideas and values. It claims that some social and environmental crisis are related to economic growth.
 * does not embrace one single philosophical current
 
-##**Sources**
+##**Sources**##
 
 
 **Ecology**
