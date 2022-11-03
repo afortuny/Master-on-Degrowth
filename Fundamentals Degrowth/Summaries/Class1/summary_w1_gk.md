@@ -287,4 +287,5 @@ no refinement, no comfort, and no benefit to those who may be possessed of wealt
 * Dehumanizing or making other living things as mindless and not really alived
 * Only humans are subjects, nature is an object
 * This ideology against the nature world allow the consideration os humans as masters and ultimate possesors of nature
+* Nature is defined as external to humans, from animist to dualist, showed in economics in the form of externalities /resources/raw materials /ecosystem services / the environment... nature, the ultimate commodity
 * 
