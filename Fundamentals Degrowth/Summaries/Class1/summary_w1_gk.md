@@ -118,6 +118,28 @@ purposes should not be seen as implying hermetic compartments.
 
 * Complexity and multi-dimensionality of degrowth can sometimes be difficult to communicate, and overwhelming to people looking for a single guide to practical action.
 
+* Improving democracy or justice without worrying about meaning of life could lead us to techno-centred solutions.
+
+* The debates and controversies over strategies employed within each source of the degrowth movement have been most intense.
+
+* For Latouche (2009) degrowth is not a concrete and universal alternative to growth, but a matrix of multiple alter-
+natives that will reopen the space for human creativity, after removal of the plaster of economic totalitarianism.
+
+* The eventual success story of degrowth in the media, academia and society could actually be related to the good variety
+of strategies within degrowth.
+
+## Degrowth actors
+
+* new middle class plays an important role
+* new social movements, together with all ones joining forces against structural conflicts
+* scientists, activists and practitioners
+
+## Conclusions
+
+Generally degrowth challenges the hegemony of growth and calls for a democratically led redistributive downscaling of production and consumption in industrialised countries as a means to achieve environmental sustainability, social justice and well-being.
+
+
+
 ### Kallis what is degrowth?
 
 Experts accumulate power at the expense of
