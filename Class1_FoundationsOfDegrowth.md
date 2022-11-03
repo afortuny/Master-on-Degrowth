@@ -2,29 +2,40 @@
 
 ### What is Degrowth? From an Activist Slogan to a Social Movement
 
-* voluntary societal shrinking of production and consumption aimed at social and ecological sustainability
-* degrowth does not aspire to be adopted as a common goal by the United Nations, the OECD or the European Commission. The idea of ‘socially sustainable degrowth’ (Schneider et al. 2010), or simply degrowth, was born as a proposal for radical change
-* degrowth is a critique of the current development hegemony
-* degrowth actors ind the economic system based on growth (fuelled by debt) as the core problem
+**Definitions**
+
+* missile word that sparks a debate of our society, repolitizing desired socio environmental futures
+* it is a slogan agains economic growth and green growth, breaking with the false consensus of sustainable development
+* in economics, one of the fundations was the work of Hermann Daly on the Steady State Economics
+* degrowth is not focused only on economics, rather a system of ideas and values. It claims that some social and environmental crisis are related to economic growth.
 * does not embrace one single philosophical current
 
-*Ecology*
-Ecosystems as having value in themselves
-Stresses the competition between ecosystems and the industrial production and consumption systems
+**Sources**
+
+
+**Ecology**
+
+*Ecosystems have value in themselves
+
+*Stresses the competition between ecosystems and the industrial production and consumption systems
 Degrowth is therefore a possible path to preserve ecosystems by the reduction of human pressure over ecosystems and
-nature, and a challenge to the idea that decoupling of ecological impacts from
-economic growth is possible
+nature, and a challenge to the idea that decoupling of ecological impacts from economic growth is possible
 
-*Critiques of development and praise for anti-utilitarianism*
-Critique of the uniformisation of cultures due to the widespread adoption of particular technologies and consumption and production models experienced in the global North
 
-critique of homo economicus, against utility-maximisation as the ultimate driving force of human behaviour.
 
-Degrowth in that sense calls for more ample visions giving importance to economic relations based on gifts and reciprocity, where social relations and conviviality are central
+**Critiques of development and praise for anti-utilitarianism**
 
-*Meaning of life and well-being*
+*Critique of the uniformisation of cultures due to the widespread adoption of particular technologies and consumption and production models experienced in the global North
 
-Voluntary simplicity, reducing individual consumption while seeing simple life as liberating and profound rather than restraining and limiting is an important vision within this source
+*Critique of homo economicus, against utility-maximisation as the ultimate driving force of human behaviour.
+
+*Degrowth in that sense calls for more ample visions giving importance to economic relations based on gifts and reciprocity, where social relations and conviviality (connecting autonomously with the environment) are central
+
+**Meaning of life and well-being**
+
+*Critique of life-styles based on the mantras of working more, earning more, selling more and buying more.
+
+*Voluntary simplicity, reducing individual consumption while seeing simple life as liberating and profound rather than restraining and limiting is an important vision within this source
 
 *Bioeconomics*
 
