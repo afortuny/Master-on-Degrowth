@@ -274,6 +274,17 @@ no refinement, no comfort, and no benefit to those who may be possessed of wealt
 * Capitalism is not democratic, even if implemented in a democratic country, as the decision of what to produce are made by a few
 * Capitalism is organized on increasing levels of production or growth
 * Growth is used for profit seeking, not to improve any social wellbeing
-* 
-
+* Capital accumulation requires rising input usages and cheapening of such inputs
+* The accumulation of capital requires an imperial arrangement
+* The purpose of surplus this time is not to be consumed by rather to expand the accumulation
+* Silver was a key expropiated mineral from Andes to Europe to get land from the East. It was for free as slave labor was used, also for Sugar as a crucial source of key calories. Cheap food allows you for cheap labor.
+* Cotton was also a key raw material to support the industrial revolution.
+* As cheap food was imported, that enable the expansion of specialization and the so called development achieved today
+* Breaking subsistence economies, the commons and unfair taxation were essential to ensure a "voluntary" movement of peasants to proletariat
+* Degrowth should eliminate artificial scarcity to break the mandate of growth
+* To justify violence you need to recall that capitalism is a "natural" phenomenon, and break with the idea of animism, or value and respect of all forms of live
+* Casting nature as disordered, chaotic...needed of domination and slaved (Francis Bacon) , nature is a lifeless machine
+* Dehumanizing or making other living things as mindless and not really alived
+* Only humans are subjects, nature is an object
+* This ideology against the nature world allow the consideration os humans as masters and ultimate possesors of nature
 * 
