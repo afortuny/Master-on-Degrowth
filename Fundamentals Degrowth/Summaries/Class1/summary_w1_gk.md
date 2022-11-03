@@ -96,6 +96,18 @@ which are fundamental to one’s well-being, such as social relations, political
 * Latouche (2009) we are living not only in a growth economy, but in a growth society. Therefore degrowth implies a societal transformation. While many actors oppose or challenge some institutions, they often propose to
 act within existing ones.
 
+* Some institutions need to be defended, like some form of social security and public health, public kindergarten and schools
+
+* For Martinez-Alier et al. (2011) degrowth is actually an example of activist-led science.
+
+* Much more research on what type of degrowth, and how much of it, is needed. Doubt is cast on whether the final outcome will still be a capitalist economy and society or not
+
+* There is awareness that action must be taken on all levels. Most activities take place at the local scale, and are often articulated through informal and formal networks.
+
+* The movement is still far from being able to coordinate actions to reduce absolute consumption of energy and materials at the national and global scale.
+
+* It remains unclear how the socio-ecological transformation might actually take place at macro scales and which institutions should be involved.
+
 ### Kallis what is degrowth?
 
 Experts accumulate power at the expense of
