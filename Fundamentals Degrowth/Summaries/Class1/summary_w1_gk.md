@@ -257,7 +257,31 @@ no refinement, no comfort, and no benefit to those who may be possessed of wealt
  The proponents of capitalism themselves believed it was necessary to impoverish people in order to generate growth.
 
 
+# Summary of the Introduction of the book : A history of the world in seven cheap things
 
+Capitalism has thrived not because it is violent and destructive (it is) but because it is productive in a particular way. Capitalism thrives not by destroying
+natures but by putting natures to work-as cheaply as possible. 
+
+Humans under capitalism abuse the ecosystems of which we are part-and on which we depend. 
+
+Money is the medium through which capitalism operates, a source of power for those able to control it
+
+Global inequality is a class process made possible by political as well as market forces. 
+
+Production and accumulation have been remade through a radical remaking of nature
+
+Capital isn't the dead stock of uncut trees or unused skill. For Marx and for us, capital happens only in the live transformation of money into commodities and back again. 
+
+The relations between bankers and governments lead in the short term to reinvestment, in the medium term to the concentration of wealth and returns in  the financial sector, and in the long term to the rise and fall of commercial power centered on a city, state, or international regime
+
+The global political economy of cheap fuel has not only wrought immense human suffering in its extraction but also, of course, remade planetary ecology. 
+
+Without the power to decide whose lives matter and whose do not, it would not have been possible to suppress Indigenous Peoples or members of rival
+religions and states and appropriate their knowledge, resources, and labor power. 
+
+Too often we attribute capitalism's devastation of life and environments to economic rapaciousness alone, when much of capitalism cannot be reduced to economics. Contrary to neoliberal claptrap, businesses and markets are ineffective at doing most of what makes capitalism run. Cultures, states, and scientific complexes must work to keep humans obedient to norms of gender, race, and class.
+
+"activism is the rent I pay for living on the planet"
 
 # Notes on the class 3rd November
 
