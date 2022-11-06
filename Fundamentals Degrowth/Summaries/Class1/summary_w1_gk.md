@@ -93,8 +93,7 @@ atives, alternative (so called ethical) banks or credit cooperatives, decentrali
 * The major idea being if less time is spent on formal work and consumption, more time can be dedicated to other activities
 which are fundamental to one’s well-being, such as social relations, political participation, physical exercise, spirituality and contemplation. Such a shift will potentially be less environmentally harmful.
 
-* Latouche (2009) we are living not only in a growth economy, but in a growth society. Therefore degrowth implies a societal transformation. While many actors oppose or challenge some institutions, they often propose to
-act within existing ones.
+* Latouche (2009) we are living not only in a growth economy, but in a growth society. Therefore degrowth implies a societal transformation. While many actors oppose or challenge some institutions, they often propose to act within existing ones.
 
 * Some institutions need to be defended, like some form of social security and public health, public kindergarten and schools
 
@@ -234,7 +233,7 @@ The rise of capitalism in Europe –  and Europe’s Industrial Revolution –  
 
 Under capitalism, growth always requires new frontiers from which to extract uncompensated value. It is, in other words, intrinsically colonial in character.
 
-By destroying self- suffcient economies, they created not only a mass of workers but also a mass of consumers –  people wholly dependent on capital for food, clothes and other essential goods.
+By destroying self- sufficient economies, they created not only a mass of workers but also a mass of consumers –  people wholly dependent on capital for food, clothes and other essential goods.
 
 
 ### The paradox of artificial scarcity
@@ -259,8 +258,7 @@ no refinement, no comfort, and no benefit to those who may be possessed of wealt
 
 # Summary of the Introduction of the book : A history of the world in seven cheap things
 
-Capitalism has thrived not because it is violent and destructive (it is) but because it is productive in a particular way. Capitalism thrives not by destroying
-natures but by putting natures to work-as cheaply as possible. 
+Capitalism has thrived not because it is violent and destructive (it is) but because it is productive in a particular way. Capitalism thrives not by destroying natures but by putting natures to work-as cheaply as possible. 
 
 Humans under capitalism abuse the ecosystems of which we are part-and on which we depend. 
 
@@ -276,8 +274,7 @@ The relations between bankers and governments lead in the short term to reinvest
 
 The global political economy of cheap fuel has not only wrought immense human suffering in its extraction but also, of course, remade planetary ecology. 
 
-Without the power to decide whose lives matter and whose do not, it would not have been possible to suppress Indigenous Peoples or members of rival
-religions and states and appropriate their knowledge, resources, and labor power. 
+Without the power to decide whose lives matter and whose do not, it would not have been possible to suppress Indigenous Peoples or members of rival religions and states and appropriate their knowledge, resources, and labor power. 
 
 Too often we attribute capitalism's devastation of life and environments to economic rapaciousness alone, when much of capitalism cannot be reduced to economics. Contrary to neoliberal claptrap, businesses and markets are ineffective at doing most of what makes capitalism run. Cultures, states, and scientific complexes must work to keep humans obedient to norms of gender, race, and class.
 
