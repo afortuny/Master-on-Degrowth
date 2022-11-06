@@ -186,19 +186,19 @@ Assuming degrowth is successfully implemented in a diverse set of ways, reducing
 *  Our crisis has nothing to do with humans as such. It has to do with the dominance of a particular economic
 system: one that is recent in origin, which developed in particular places at a particular time in history, and which has not been adopted to the same extent by all societies. As the sociologist Jason Moore has pointed out, this isn’t the Anthropocene it’s the Capitalocene.
 
-* While markets have been around for many thousands of years, in di erent times and places, capitalism is relatively recent
+* While markets have been around for many thousands of years, in different times and places, capitalism is relatively recent
+phenomenon
 
-* The goal of capital is to extract and accumulate surplus, it has to get these things for as cheap as
-possible. In other words, capital works according to a simple, straightforward formula: take more – from nature and from
+* The goal of capital is to extract and accumulate surplus, it has to get these things for as cheap as possible. In other words, capital works according to a simple, straightforward formula: take more – from nature and from
 labour – than you give back
 
 *  Capitalism didn’t just ‘emerge’. There was no smooth, natural ‘transition’ to capitalism, and it has nothing to do with human nature.
 
-* It wasn’t the rise of capitalism that put an end to feudalism. That at victory belongs, remarkably enough, to a courageous
+* It wasn’t the rise of capitalism that put an end to feudalism. That victory belongs, remarkably enough, to a courageous
 struggle fought by a long tradition of everyday revolutionaries who have for some reason been almost entirely forgotten.
 
 * Due to the relative abundance of land and limited labor, Commoners began to realise that this was their
-chance: they had an opportunity to change the very foundations of the social and political order.  ey grew more hopeful, more confident, and the rebellions gained steam.
+chance: they had an opportunity to change the very foundations of the social and political order. They grew more hopeful, more confident, and the rebellions gained steam.
 
 * Wages rose to levels higher than ever before in recorded history, doubling or even tripling in most regions and in some cases rising as much a s sixfold.Rents declined, food became cheap, and nutrition improved. Workers were able to bargain for shorter working hours and weekends off , plus benefits like meals on the job and payment for each mile they had to travel to and from work.
 
@@ -282,6 +282,30 @@ religions and states and appropriate their knowledge, resources, and labor power
 Too often we attribute capitalism's devastation of life and environments to economic rapaciousness alone, when much of capitalism cannot be reduced to economics. Contrary to neoliberal claptrap, businesses and markets are ineffective at doing most of what makes capitalism run. Cultures, states, and scientific complexes must work to keep humans obedient to norms of gender, race, and class.
 
 "activism is the rent I pay for living on the planet"
+
+# Increasing Supply Price and Imperialism
+
+Greater and greater exploitation not only leaves less for further exploitation, but also entails an increasing supply price because the more easily exploitable sources of supply are presumed to be used up first.
+
+There is a whole range of goods the metropolis cannot do without but whose supplies at the margin must come from the tropical and semi-tropical regions
+
+Land augmentation requires above all the intervention of the state. Irrigation, historically the main land-augmenting measure, cannot be done by individual peasant farmers unless water is supplied to entire villages through canals fed from the tropical river systems. The scale of the requisite investment for such canals is too large to be undertaken by individual peasants. 
+
+The spread of such new practices and methods to peasants on a large scale also requires extension services that only the
+state can provide. In short, land augmentation on the tropical landmass can occur only through state intervention and state expenditure.
+
+Under capitalism, however, state effort of this sort is precisely what is eschewed. There are at least three reasons for this: first, the entire ideological trappings within which the capitalist state, or its offshoot, the colonial
+state, is supposed to function, namely that it must balance its budget, that it can undertake any investment only if such investment earns a minimum rate of return, preclude any state effort toward land augmentation. Second, though the state makes allowances for projects that are of benefit to the capitalists, it follows these rigid rules when it comes to projects that would bring larger incomes to the peasants.
+
+People switch from holding money as a form of wealth to holding commodities as a form of wealth. Of course, such a shift may happen even when there is steady inflation, provided it exceeds a certain threshold rate. But with accelerating inflation occurring, and then becoming expected, because of a rising labor coefficient in primary commodity production, a shift from holding money to holding commodities is bound to happen.
+
+No matter what the current level of inflation, even if it is below the carrying cost, if accelerating inflation is anticipated, then there can still be no equilibrium, and the value of money would still plummet to zero. 
+
+It becomes essential for capitalism, therefore, quite independently of the Ricardian falling rate of profit, to ensure that the shadow of increasing supply price does not fall on the economy.
+
+The regime imposed on the tropical region thus included not just openness to trade and openness to capital flows but an arrangement for dictating the production pattern.
+
+
 
 # Notes on the class 3rd November
 
