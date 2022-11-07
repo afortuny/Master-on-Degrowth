@@ -226,3 +226,63 @@ safety and health by industrial unions. Led by sometimes renegade union
 activists such as Tony Mazzochi, unions such as the Oil, Chemical, and
 Atomic Workers Union have paid increased attention to environmental
 justice issues. 
+
+Perhaps it is the history of
+the traditional environmental movement that has made it such a small
+contributor to the Environmental Justice Movement.
+
+The first wave began around the turn of the century, when
+John Muir, Theodore Roosevelt, and other lovers of wilderness advocated the preservation of natural spaces in the United States
+
+ preservationists, who advocate preserving
+wilderness from humans, and the conservationists, who want to preserve
+nature for human use through wise stewardship
+
+These laws created complex administrative
+processes that exclude most people who do not have training in the field
+and necessitate specific technical expertise. The laws, while in some cases
+successful in cleaning up the environment, have also had an unintended
+consequence—the exclusion of those without expertise from much of
+environmental decision making.
+
+Lawsuits are now the primary, and sometimes the only,
+strategy employed by traditional groups
+
+Until relatively recently, the traditional environmental law community
+has largely ignored environmental justice issues
+
+
+**The Summit**
+
+Unprecedented alliances were formed at the Summit, and participants
+made conceptual linkages between seemingly different struggles, identifying common themes of racism and economic exploitation of people
+and land. Many there came to understand their issues in the context of a
+larger movement, and on a deeper level than before. Latinos saw the
+racism African Americans had experienced and likened it to their own experiences; foes of toxic waste dumps understood the fights of those who
+opposed uranium mining. The raised consciousness took place at a variety of levels: “Native Americans stressing a spiritual connection with the
+environment were able to find a common ground with Christian African
+Americans and Mexican Americans,” 
+
+On a more tangible level, perhaps the most
+important result of the Summit were the Principles of Environmental
+Justice, seventeen principles agreed to by the delegates.
+
+**Environmental Justice Activists**
+
+grassroots activists are often fighting for their health and homes. Environmental justice activists usually have an immediate and material stake
+in solving the environmental problems they confront; they realize the
+hazards they face affect the communities where they live and may be sickening or even killing them or their children
+
+Second, with respect to background, grassroots environmentalists are
+largely, though not entirely, poor or working-class people. Many are people of color who come from communities that are disenfranchised from
+most major societal institutions. Because of their backgrounds, these activists often have a distrust for the law and are often experienced in the
+use of nonlegal strategies, such as protest and other direct action.
+
+Most environmental justice activists have a social justice orientation, seeing environmental degradation as just one of many ways their communities are
+under attack. Because of their experiences, grassroots activists often lose
+faith in government agencies and elected officials
+
+Similarly, many activists also seek remedies that are more fundamental
+than simply stopping a local polluter or toxic dumper. Instead, many
+view the need for broader, structural reforms as a way to alleviate many
+of the problems, including environmental degradation, that their communities endure
