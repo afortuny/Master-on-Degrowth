@@ -81,6 +81,46 @@ A political strategy is also needed that can draw from a wide cross-section of i
 http://www.ciesin.org/docs/010-278/010-278chpt2.html
 
 
+# From the ground up : intro and chapter 1
+
+Cole, Luke W., and Sheila R. Foster, 2001. Introduction and Chapter 1 in From the Ground Up:
+Environmental Racism and the Rise of the Environmental Justice Movement. New York: New York
+University Press, 2001, pp. 10-33.
 
 
+https://jasonwmoore.com/wp-content/uploads/2018/07/Cole-and-Foster-From-the-Ground-Up_-Environmental-Racism-and-the-Rise-of-the-Environmental-Justice-Movement-2001-NYU-Press.pdf
 
+
+Environmental hazards are inequitably distributed in the United States, with poor people and people of color bearing a greater share of pollution
+than richer people and white people.
+
+However, since so much of environmental decision making is structured by legal institutions, it is important to understand the way in which environmental laws can both contribute to and mitigate the injustice experienced by many communities.
+
+Understanding environmental racism and injustice requires a broader, structural perspective. This broader perspective, what we call the “political economy”
+of environmental racism, is crucial both to framing the issue and to addressing the injustice so many communities experience.
+
+This broader analysis, in turn, forces us to go beyond framing the problem as merely a distributive one—certain communities get an unfair environmental burden—
+and to reconceptualize grassroots activism as more than an attempt to disrupt the decisions of private corporations and state agencies. Instead,
+grassroots struggles are a crucial arena in which to restructure social relations through systems of localized environmental decision making.
+
+A private company or government official has made the decision to locate an environmentally hazardous facility in their neighborhood.
+These processes also involve a community’s decision to organize and become involved in the decisions that shape its lives and health.
+
+**Transformative Politics**
+
+What is “new” about the Environmental Justice Movement is not the “elevated environmental consciousness” of its members but the ways that it transforms the possibilities for fundamental social and environmental change through redefinition, reinvention, and construction of innovative political and cultural
+discourses and practices.
+
+Individuals are transformed through the process of struggle by learning about, and participating in, a decision that will fundamentally affect their quality of life. Using lawyers and other technicians, residents in embattled communities both build upon their knowledge of their community’s environmental problems and acquire knowledge about the substantive and procedural aspects of environmental decision making. Their home-grown, and acquired, expertise empowers local residents and helps them to develop a grassroots base to influence environmental decision making.
+
+Environmental justice groups are networking with other groups to provide information and technical expertise to grassroots constituencies on various issues of interest to disenfranchised communities, beyond environmental justice. Because of these networks, residents in marginal communities will continue to shape environmental policy, both locally and nationally, as well as create more opportunities for community input into the spectrum of policy making that affects their material conditions.
+
+**Words Have Power: A Note on Our Terminology**
+
+“environmental racism” and “environmental injustice” interchangeably in the book. While “environmental racism” is the better-known term, “environmental injustice” is broader and encompasses both the racial and the class aspects of the political economy at work in communities that face toxic assault.
+
+Environmental justice requires democratic decision making, community empowerment, and the incorporation of social structure.
+
+Most important in our concept of environmental justice is the element of democratic decision making, or community self-determination. Current environmental decision-making processes have not been effective in providing meaningful participation opportunities for those most burdened by environmental decisions.
+
+Historically, poor communities of color have been marginalized within the environmental movement. These communities view traditional environmentalism as associated with the preservation of wildlife and wilderness—concerns that are just not central to the everyday survival of poor communities and communities of color.
