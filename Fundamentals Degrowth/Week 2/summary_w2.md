@@ -53,3 +53,34 @@ In their desperate attempt to improve the economic conditions of their constitue
 
 Polluting industries were brought into poor communities with little input from local community leaders.[23] When questions were raised by concerned citizens. the argument of jobs for local residents was used to quell dissent. Jobs were real; environmental risks were unknown.
 
+Many industrial firms especially waste disposal companies and industries that have a long history of pollution violations, came to view the black community as a "pushover lacking community organization, environmental consciousness, and with strong and blind pro-business politics."
+
+Because a large share of inhabitants in these communities are renters (many from low-income households) rather than home owners, it is difficult to organize and mobilize residents. This marginality also makes it hard for people to donate their time or money to fend off threats to the community.
+
+*Growing Black Militancy*
+
+Blacks did not launch a frontal assault on environmental problems affecting their communities until these issues were couched in a civil rights context beginning in the early 1980s. They began to treat their struggle for environmental equity as a struggle against institutionalized racism and an extension of the quest for social justice.[37] Just as black citizens fought for equal education, employment, and housing, they began to include the opportunity to live in a healthy environment as part of their basic rights. Moreover, they were convinced that disparate enforcement of environmental policies and regulations contributes to neighborhood decline much like housing discrimination, redlining practices, and residential segregation do.
+
+The site at Afton was not even scientifically the most suitable. The water table of Afton, North Carolina, (site of the landfill) is only 5-10 feet below the surface, and the residents of the community derive all of their drinking water from local wells. Only the most optimistic could believe that the Afton landfill will not eventually leach into the groundwater. The depositing of toxic wastes within the black community is no less than attempted genocide.
+
+Landfilling is cheap. It is cheaper than the alternative. The people who like to use landfills such as chemical industries are very powerful. No amount of science, truth, knowledge or facts goes into making this decision. It is a purely political decision. What they listen to is pressure.
+
+
+**Waste Facilily Siting Disparities**
+
+The facility siting controversy cannot be reduced solely to a class phenomenon because there is no shortage of poor white communities in the region. One only has to point to southern Appalachia to see widespread white poverty in America. Nevertheless, poor whites along with their more afiluent counterparts have more options and leveraging mechanisms (formal and informal) at their disposal than blacks of equal status.
+
+Nationally, three of the five largest commercial hazardous-waste landfills are located in areas where blacks and Hispanics compose a majority of the population. These siting disparities expose minority citizens to greater risks than the general population.
+
+Growing empirical evidence shows that toxic-waste dumps, municipal landfills, garbage incinerators, and similar noxious facilities are not randomly scattered across the American landscape. The siting process has resulted in minority neighborhoods (regardless of class) carrying a greater burden of localized costs than either affluent or poor white neighborhoods. Differential access to power and decision making found among black and white communities also institutionalizes siting disparities.
+
+Finally, the burden, or negative side, of industrial development has not been equally distributed across all segments of the population. Living conditions in many communities have not improved very much with new growth. Black communities became the dumping grounds for various types of unpopular facilities, including toxic wastes, dangerous chemicals, paper mills, and other polluting industries.
+
+A political strategy is also needed that can draw from a wide cross-section of individuals and groups who share a common interest in preservation of environmental standards. In his keynote address to the 1983 Urban Environment Conference on toxics and minorities, Congressman John Conyers of Detroit pinpointed this strategy. The black congressman saw broad-based groups (e.g., similar to those attending the New Orleans meeting) as having an "opportunity to raise the fairness issue in all dimensions, including the toxic threat to the poor, minority and working class Americans."
+
+http://www.ciesin.org/docs/010-278/010-278chpt2.html
+
+
+
+
+
