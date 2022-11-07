@@ -124,3 +124,105 @@ Environmental justice requires democratic decision making, community empowerment
 Most important in our concept of environmental justice is the element of democratic decision making, or community self-determination. Current environmental decision-making processes have not been effective in providing meaningful participation opportunities for those most burdened by environmental decisions.
 
 Historically, poor communities of color have been marginalized within the environmental movement. These communities view traditional environmentalism as associated with the preservation of wildlife and wilderness—concerns that are just not central to the everyday survival of poor communities and communities of color.
+
+
+**A Final Note: The Focus on Waste**
+
+The movement for environmental justice seeks much more than merely to stop the siting of waste facilities, and other locally undesirable land uses
+in low-income communities and communities of color. Waste facility siting battles are but one aspect of the movement for environmental justice,
+which also concerns itself with the cleanup of contaminated industrial sites, the elimination of occupational hazards, lead abatement, enforcement of existing environmental regulations, and the guarantee of representation in the environmental decision-making process.
+
+The movement for environmental justice is also about creating clean jobs, building a sustainable economy, guaranteeing safe and affordable housing, and achieving racial and social justice.
+
+Waste facility siting is also the arena in which a great deal of grassroots action takes place. It is no coincidence that some of the first major environmental justice studies to chart disproportionate impact focused on commercial waste facilities. These facilities can pose great risk to human health and the environment and are the subject of ongoing public scrutiny and concern.
+
+# A History of the Environmental Justice Movement
+
+Perhaps the most significant source feeding into today’s Environmental
+Justice Movement is the Civil Rights Movement of the 1950s, 1960s,
+and 1970s. Through that movement, hundreds of thousands of African
+Americans and their allies, primarily but not solely in the southern
+United States, pressed for social change and experienced empowerment
+through grassroots activism
+
+Environmental Justice Movement leaders coming out of civil rights
+organizing include not only those who advocated for the rights of
+African Americans but also Latino activists. 
+
+Civil rights activists brought three things to the Environmental Justice Movement: a history of, and experience with, direct action, which
+led to similar exercises of grassroots power by the Environmental Justice
+Movement; a perspective that recognized that the disproportionate impact of environmental hazards was not random or the result of “neutral”
+decisions but a product of the same social and economic structure which
+had produced de jure and de facto segregation and other racial oppression; and the experience of empowerment through political action
+
+
+1960s, introduced the Environmental Justice Act.8
+Though the Act did not pass Congress, it raised environmental justice issues to a new stature in Washington. Lewis, in speaking about the bill,
+recognized that “the quest for environmental justice has helped to renew
+the civil rights movement” through its call for environmental protection
+as a “right of all, not a privilege for a few
+
+The second major tributary to the river is the grassroots anti-toxics
+movement. Communities have long resisted and organized against hazardous waste facilities, landfills, and incinerators.
+
+ Growing out of their concrete experiences in their own communities, anti-toxics activists came up with the
+idea of “pollution prevention”—that is, eliminating the use of toxic
+chemicals in industrial practices so that the production of toxic waste
+is stopped as well. 
+
+the Environmental Justice Movement. It further contributed both the experience of
+using (and, when need be, discrediting) scientific and technical information and the conceptual framework that pushed pollution prevention and
+toxics use reduction as policy goals.
+
+**Academics**
+
+Academics,
+however, have played a crucial role in both sparking and shaping the Environmental Justice Movement, perhaps a larger one than they have
+played in any other broad-based social movement in the United States
+
+Beyond lobbying the federal government, the academics researched
+and wrote (and continue to produce) studies that demonstrate the disproportionate impact of environmental hazards on people of color and
+on low-income people.
+
+the academics have provided expertise to community
+groups during litigation or administrative advocacy in a local environmental justice struggle
+
+the academics learned from community
+residents the situation on the ground, while local residents came to understand their community’s struggle in the context of a larger regional
+or national pattern and movement
+
+
+**Native American Struggles**
+Native American activists brought to the Environmental Justice
+Movement the experiences of centuries of struggle for self-determination and resistance to resource-extractive land use.
+
+
+The Native American tributary to the movement also helped define
+one of its central philosophies, the concept of self-determination. The
+centuries-old Native American idea of sovereignty echoed with, and
+helped create, the Environmental Justice Movement’s credo, “We speak
+for ourselves.”
+
+**The Labor Movement**
+
+the historical struggle of farm-workers to gain control over their
+working conditions. The farm-worker movement of the 1960s, led by
+Cesar Chavez, was perhaps the first nationally known effort by people
+of color to address an environmental issue. Much of the activity took
+the form of union organizing drives.
+
+Unionization and protection of
+farm-workers’ health and safety were integrally linked from the earliest
+days of the farm-worker organizing drives
+
+A second, and much less significant, labor tributary, one fed by the
+public health activism of the 1970s, is the occupational safety and health
+movement. The rise of Committees on Occupational Safety and Health
+(COSHs) across the country in the 1970s and 1980s brought increased
+attention to the environmental hazards faced by workers in the workplace.
+
+A third labor tributary is the increased attention paid to occupational
+safety and health by industrial unions. Led by sometimes renegade union
+activists such as Tony Mazzochi, unions such as the Oil, Chemical, and
+Atomic Workers Union have paid increased attention to environmental
+justice issues. 
