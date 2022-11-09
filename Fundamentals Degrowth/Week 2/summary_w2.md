@@ -368,7 +368,9 @@ Only till 1955, there are an organized movement to overcome north domination.
 The rise of the south include: land reform, improve workers wages thanks to unions, invest i public services such as health and education, nationalizing key resources like oil. They also protect their domestic industries, avoid capital flight ...
 and per capita income grew at 3.5% per year during 1950 and 1970.The non aligned movement, argued for fair global economy with real democracy in the UN.
 
-It was crashed by structural adjustment programs, to cut publci services in the south and make debt unpayable.  The thread of coups make default an impossible alternative. This was a tool to stop the strengthening of the south while giving new growth opportunities to the north.
+It was crashed by structural adjustment programs, to cut publci services in the south and make debt unpayable.  The thread of coups make default an impossible alternative. This was a tool to stop the strengthening of the south while giving new growth opportunities to the north. That rape alliances, and create a race to the bottom between the countries of the south to get investments and credit from the north.
+
+Countries like US pick this system likely as it was the most productive system at the moment. 
 
 
 
