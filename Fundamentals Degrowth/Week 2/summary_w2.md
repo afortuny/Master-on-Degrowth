@@ -28,21 +28,6 @@ Despite this, the South still rises , creating for example OPEC for better price
 
 The first goal was to break with economic colonization. 
 
-**Volcker Shock** increase on interest rates to push debtors in the south. That pushes structural adjustment programs such as privatizations of public services. That was a blodless coup as it interferes directly with the sovereignity of countries without explicit violence.
-
-This policy keep capita incomes in those countries to stagnate for at least 20 years. Two key instutitions are the World Bank and IMF are colonial institutions that enable that, where US holds veto and the G7 commans the majority of the vote.
-
-The South did not default as the threat of coup was too great. Also, it is important to point out that IMF gives more vote to those that buy more shares, which is entirely democratic.
-
-Capitalism was probably the most productive system to win the arms race, despite its requirements to erode internal democracy and break other countries.
-
-
-
-
-
-
-
-
 
 
 *Consequences of Uneven Development*
@@ -376,6 +361,13 @@ Why is it called liberalism? The actual system is capitalism, reframed to keep e
 
 Social democracy is possible without imperial arrangements. Surplus accumulation of capitalism and the organization of the economy for growth make very hard to keep social democracy without imperalism. Degrowth enable the implementation of social systems without imperialism.
 
+**Volcker Shock** increase on interest rates to push debtors in the south. That pushes structural adjustment programs such as privatizations of public services. That was a blodless coup as it interferes directly with the sovereignity of countries without explicit violence.
+
+This policy keep capita incomes in those countries to stagnate for at least 20 years. Two key instutitions are the World Bank and IMF are colonial institutions that enable that, where US holds veto and the G7 commans the majority of the vote.
+
+The South did not default as the threat of coup was too great. Also, it is important to point out that IMF gives more vote to those that buy more shares, which is entirely democratic.
+
+Capitalism was probably the most productive system to win the arms race, despite its requirements to erode internal democracy and break other countries.
 
 
 
