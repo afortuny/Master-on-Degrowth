@@ -370,7 +370,15 @@ and per capita income grew at 3.5% per year during 1950 and 1970.The non aligned
 
 It was crashed by structural adjustment programs, to cut publci services in the south and make debt unpayable.  The thread of coups make default an impossible alternative. This was a tool to stop the strengthening of the south while giving new growth opportunities to the north. That rape alliances, and create a race to the bottom between the countries of the south to get investments and credit from the north.
 
-Countries like US pick this system likely as it was the most productive system at the moment. 
+Countries like US pick this system likely as it was the most productive system at the moment. The imperial implementation of restructuring programs increase incomes in US at the expense of th South. This rescue is called neoliberalism.
+
+Why is it called liberalism? The actual system is capitalism, reframed to keep extracting incomes from the south.
+
+Social democracy is possible without imperial arrangements. Surplus accumulation of capitalism and the organization of the economy for growth make very hard to keep social democracy without imperalism. Degrowth enable the implementation of social systems without imperialism.
+
+
+
+
 
 
 
