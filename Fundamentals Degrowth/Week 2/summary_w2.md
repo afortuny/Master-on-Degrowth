@@ -22,6 +22,29 @@ Those communities that failed to penetrate the clean industry market were left w
 
 The South also has the largest concentration of blacks in the country. In 1980, more than 14 million blacks lived in the region. Blacks were nearly one-fifth of the region's population. In the 1970s the region's black population increased by nearly 18 percent.
 
+We have examples in Iran, Guatemala, Congo, Allende of deposed leaders by US backed coups when those try to keep the ownership of the commons.
+
+Despite this, the South still rises , creating for example OPEC for better prices of natural resource exports.
+
+The first goal was to break with economic colonization. 
+
+**Volcker Shock** increase on interest rates to push debtors in the south. That pushes structural adjustment programs such as privatizations of public services. That was a blodless coup as it interferes directly with the sovereignity of countries without explicit violence.
+
+This policy keep capita incomes in those countries to stagnate for at least 20 years. Two key instutitions are the World Bank and IMF are colonial institutions that enable that, where US holds veto and the G7 commans the majority of the vote.
+
+The South did not default as the threat of coup was too great. Also, it is important to point out that IMF gives more vote to those that buy more shares, which is entirely democratic.
+
+Capitalism was probably the most productive system to win the arms race, despite its requirements to erode internal democracy and break other countries.
+
+
+
+
+
+
+
+
+
+
 *Consequences of Uneven Development*
 
 Migrants to urban areas and incumbent residents who had marginal skills generally found themselves in the growing unemployment lines
@@ -286,3 +309,70 @@ Similarly, many activists also seek remedies that are more fundamental
 than simply stopping a local polluter or toxic dumper. Instead, many
 view the need for broader, structural reforms as a way to alleviate many
 of the problems, including environmental degradation, that their communities endure
+
+
+# Notes on Degrowth a la French (class notes)
+
+The ask is not only economical, it is more fundamental,inviting one to shift and repolitize the terms in which economic relantions and identities are considered.
+
+Degrowth is not an end, but rather a means for fostering a spirit of critique.
+
+Degrowth propose to live the abudance of self limitation and frugality.
+
+We need to decolonize our imaginary that justifices the westernizing violent process.
+
+It is appropiate to use the colonization concept also to review and empower alternatives to growth.
+
+The economy is an abstract idea, while having physical and real consequences is grounded on our minds and narratives
+
+There is the false communication of economic laws, that only exists as long as we adhere to them and the regulators support them
+
+The economy is an object of democratic choice, with no natural laws like in physics
+
+Some degrowth defendors believe scaping the laws of nature to choose to live inside the limits of nature
+
+Defendents of degrowth are not prepared to sacrificy democracy to live within planetary bounderies
+
+Some colleagues consider the debate wrong as it implies a separation with nature, which is part of to care and thrive
+
+# Anti-colonial movements and visions (class notes)
+
+Surplus accumulation requires cheapen inputs, such as labor and nature.
+
+Capitalism requires imperial relationships.
+
+It took 500 years to get back to welfare ratios of 1400 due to social movements and working unions.
+
+The availability of the commons for society was removed to push the working class to become docile labor.
+
+The monoculture of certain crops like potatoes in ireland was driven to achieve cheap food to massives amount of labor.
+
+Colonial imposition in India lead to starvation while massive exports of food was achieved.
+
+Extreme poverty is a relative recent phenomenom, not an old phenomenon improved "thanks" to capitalism.
+
+Contrary to typical narratives, India and China enjoyed better wellfare ration before colonialistic or state capitalistic dominance.
+
+An arrangement of the north where imported cheap raw materials is exchange for expensive manufactured goods to the south perpetuates current observed inequality levels.
+
+Colonialism and capitalism goes together, accumulation requires cheap labor and nature, and racist ideologies support such behaviours.
+
+Racism, sexism, nature explotation are integrated and have a common root cause.
+
+The new independent states remain controlled by autocratic elites who keep colonial power, and when Europe give up, US maintain this set up of colonization. 
+
+US declared Latin america as a super colony, as long as they challenge their interests they will intervene. 
+
+Only till 1955, there are an organized movement to overcome north domination. 
+
+The rise of the south include: land reform, improve workers wages thanks to unions, invest i public services such as health and education, nationalizing key resources like oil. They also protect their domestic industries, avoid capital flight ...
+and per capita income grew at 3.5% per year during 1950 and 1970.
+
+The non aligned movement, argued for fair global economy with real democracy in the UN.
+
+
+
+
+
+
+
