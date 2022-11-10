@@ -371,6 +371,27 @@ The South did not default as the threat of coup was too great. Also, it is impor
 Capitalism was probably the most productive system to win the arms race, despite its requirements to erode internal democracy and break other countries.
 
 
+# Types of environmentalism (class notes)
+
+Originally, environmentalism was more known on groups that enter postmaterialism, those who can "afford" to neglect some income to focus on the protection of the environment. The Environmentalism of the poor claims that this is not a postmaterialism movement,but rather a mandate for social movements to protect the basis of their life systems. The environmentalism of the poor do not wait for sufficient "development" to happen before some countries of the south engage into environmentalism. 
+
+Measurement is heavily critized by many environmentalism, particularly the ones from the poor, as it implies some centrality, lack of autonomy and democracy in the decisions. Sometimes measurements like cost benefit analysis are treated like neutral, while they are heavily political and back up by capitalistic mindsets.
+
+Is cult of wilderness and colonization of certain natural spaces? What about the local communities that are there?
+
+**Cult of wilderness** : protection of certain areas to keep them pristine and enjoy them only recreationally. What are the role of the local communities? Many local communities are already making a sustainable management of such spaces and make those spaces more resilient.
+
+**Gospel of eco-efficiency** : Technology should allow us to keep exploting earth without significant health for humans and other living forms. 
+
+**Environmentalism of the poor**: the movement more strongly tight with environmental justice.  Terms such as sacredness and sovereignity is different than the typical evaluation of the natural spaces made by wilderness protectionists or tecno optimists.
+
+
+
+
+
+
+
+
 
 
 
