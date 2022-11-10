@@ -22,12 +22,6 @@ Those communities that failed to penetrate the clean industry market were left w
 
 The South also has the largest concentration of blacks in the country. In 1980, more than 14 million blacks lived in the region. Blacks were nearly one-fifth of the region's population. In the 1970s the region's black population increased by nearly 18 percent.
 
-We have examples in Iran, Guatemala, Congo, Allende of deposed leaders by US backed coups when those try to keep the ownership of the commons.
-
-Despite this, the South still rises , creating for example OPEC for better prices of natural resource exports.
-
-The first goal was to break with economic colonization. 
-
 
 
 *Consequences of Uneven Development*
@@ -352,6 +346,13 @@ Only till 1955, there are an organized movement to overcome north domination.
 
 The rise of the south include: land reform, improve workers wages thanks to unions, invest i public services such as health and education, nationalizing key resources like oil. They also protect their domestic industries, avoid capital flight ...
 and per capita income grew at 3.5% per year during 1950 and 1970.The non aligned movement, argued for fair global economy with real democracy in the UN.
+
+We have examples in Iran, Guatemala, Congo, Allende of deposed leaders by US backed coups when those try to keep the ownership of the commons.
+
+Despite this, the South still rises , creating for example OPEC for better prices of natural resource exports.
+
+The first goal was to break with economic colonization. 
+
 
 It was crashed by structural adjustment programs, to cut publci services in the south and make debt unpayable.  The thread of coups make default an impossible alternative. This was a tool to stop the strengthening of the south while giving new growth opportunities to the north. That rape alliances, and create a race to the bottom between the countries of the south to get investments and credit from the north.
 
