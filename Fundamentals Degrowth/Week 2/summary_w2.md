@@ -385,6 +385,10 @@ Is cult of wilderness and colonization of certain natural spaces? What about the
 
 **Environmentalism of the poor**: the movement more strongly tight with environmental justice.  Terms such as sacredness and sovereignity is different than the typical evaluation of the natural spaces made by wilderness protectionists or tecno optimists.
 
+Open questions is:
+
+1) Normally we think as environmental justices issues situations where central goverments impose to a local community a certain protect with negative environmental consequences with the justification of jobs... I would like to ask what does the literature said about projects where the local communities support the project, but the consequences are not only local but also global. Some examples I have in mind are the expansion of fast train projects in spain where the costs were cover by public expenses of the region. In general we can find many infraestructure projects that benefit little the middle class but as they are finance publicly and natinally they got significant support. What does political ecology says about such situations?
+
 
 
 
