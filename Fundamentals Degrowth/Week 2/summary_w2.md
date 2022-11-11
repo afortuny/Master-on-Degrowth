@@ -389,15 +389,31 @@ Open questions is:
 
 1) Normally we think as environmental justices issues situations where central goverments impose to a local community a certain protect with negative environmental consequences with the justification of jobs... I would like to ask what does the literature said about projects where the local communities support the project, but the consequences are not only local but also global. Some examples I have in mind are the expansion of fast train projects in spain where the costs were cover by public expenses of the region. In general we can find many infraestructure projects that benefit little the middle class but as they are finance publicly and natinally they got significant support. What does political ecology says about such situations?
 
+# Paper summary: The environmentalism of the Poor revisited: Territory and place in disconnected glocal struggles
+
+The papers recontextualizes the book Environmentalism of the Poor in the current state of affairs, and the relevance of the three types of environmentalism : cult of wilderness (love of pristine nature and the expression of concerns
+about contamination outside of its broader socio-economic and cultural framework), gospel of eco efficiency (the defense of a
+wise use of natural resources, ecological modernization, ecotaxes, technological improvement, sustainable development, or smart cities, without considering the unavoidable environmental and health impacts of rapid industrialization) and the environmentalism of the poor ( have a material interest in the environment as a source and a requirement for livelihood and a preoccupation for today's historically marginalized residents).
+
+The paper tries to correct the undeniable rural bias of the the book.
 
 
+Activists engaged in environmental conflicts have built on their own local or transnational networks related to the themes or issues they are trying to address. Yet, these struggles embody common values and interests which often go beyond environmentalism itself.
 
+Throughout our analysis, we show the role played by contestation as a way to remake place for historically marginalized
+groups, re-assert cultural and traditional values and practices, and protect urban land both from contamination and dumping and private appropriation and speculation. This last point is especially important as previously contaminated land gets cleaned up and (re)developed, it often becomes the object of competition for uncontrolled growth and profit. Cities are places where uneven and often debilitating and damaging socio-natural relations of power work together through the
+urbanization of nature. The production of urban nature is deeply political.
 
+**Cult of Wilderness**
 
+The preservation of pristine nature by setting aside natural areas from where humans and market values would
+be excluded, and the active protection of wildlife for its ecological and esthetic values. Beautiful landscapes, threatened species, disappearing ecosystems such as coral reefs, mangroves, tropical rainforests were and still are the main focus of this international movement.
 
+One of the criticisms against this deep ecology movement is the failure of its adepts to consider the role of local people and involve them in the management of nature preserves. 
 
+In many cases, people who have a stake and a local lay knowledge of sustainable natural management remain excluded from the protected areas.
 
-
+The lack of economic valuation is deemed to cause the degradation of ecosystems and the loss of biodiversity. Nature is seen as ecosystems which have functions that become services to humans. Such services have no market value. It is possible nevertheless to give to them notional economic values. This will increase their visibility for public administrators.
 
 
 
