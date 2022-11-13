@@ -478,3 +478,7 @@ Bringing the conservation movement closer to The Environmentalism of the Poor is
 because the conservation movement consorts too closely with the engineers and economists, but also because there are financial links between the extractive industries and this movement. The factual alliance between the Cult of Wilderness and the Gospel of Eco-Efficiency is so far much stronger than the potential alliance between the Cult of Wilderness and the movement for Environmental Justice and The Environmentalism of the Poor.
 
 
+# Summary of the chapters of the book The Divide: Chapter 4-5
+## From Colonialism to the Coup
+
+
