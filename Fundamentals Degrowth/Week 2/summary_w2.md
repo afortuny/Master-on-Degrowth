@@ -415,8 +415,66 @@ In many cases, people who have a stake and a local lay knowledge of sustainable 
 
 The lack of economic valuation is deemed to cause the degradation of ecosystems and the loss of biodiversity. Nature is seen as ecosystems which have functions that become services to humans. Such services have no market value. It is possible nevertheless to give to them notional economic values. This will increase their visibility for public administrators.
 
+**Gospel eco efficiency**
 
+This current treats nature as resources that should be managed under cost benefit analysis criterion. To conceptualize the theoretical lack of conflict between growth and the health of the environment, the sustainable development narratives are used. Concepts like dematerialization of the economy or green growth are used often by this current's supporters. Studies that try to legitimize some economic projects do not consider cultural values or traditional knowledge. The result of this is a commoditization of the natural in the form of natural capital, and everything with it being subject to political numericalization, affecting whether one thrives or not. Global capitalism can further expand after the economic evaluation of international organization of conservation groups.
 
+**Environmental justice and racism**
 
+The uneven load place by capitalism of certain social groups and locations, particularly of certain race or ethnicity, give raise to the term environmental racism.  With the obvious existence of exeptions, it still seem obvious that the most interested in make a sustainable explotation of the environment are those whose livelihood depend on, and this is true in normally indigenous and relatively poor regions, where primary sector is almost the only one. It is therefore that the protection of the territory, autonomy and economic sustent, is also the protection of the environment. Environmental justice are environmental justice are hard to separate.
+
+**Why are not comming the movements together?**
+
+It is hard to approximate positions as the financial dependence of the first two groups on large extractive corporations is too large. There is a direct clash on positions that certain projects can be compensated somewhere else, or traded for some other conservationists efforts.
+
+**A deep dive ito the Environmentalism of the Poor, key features**
+
+Environmental Justice demands often include claims linked to recognition and participation
+
+Territorial struggles overlap with environmental struggles. Indigenous peoples appeal to human rights, indigenous territorial rights, human livelihoods, and the sacredness of endangered mountains or rivers, which cannot be accounted for in monetary language and economic compensation.
+
+Among indigenous peoples, the term “territory” refers to ancestral land and has a more all-embracing meaning than land.
+Different languages of valuation are deployed side by side such as livelihood, human right to life and health, sacredness and local indigenous territorial rights.
+
+Engaging in direct action with the company and demanding a different structure and space for dialogue and a different form of valuation for their land and the damages.
+
+Indigenous groups are active at scales from local to global and they are helping to introduce new concepts and values
+
+They are also providing an alternative to the uniform transition from underdevelopment to development. 
+
+Considering that if a tribal or rural poor family sees the availability of clean water, fodder, medicinal plants and wood endangered because of a mining project or a dam, the loss cannot be easily compensated for.
+
+Deprived urban neighborhoods tend to get poor environmental services such as green spaces, street cleaning and waste collection while wealthier and white communities enjoy environmental privileges – parks, coasts, open space – in a racially exclusive way.
+
+Today, demands include the right to well-connected, affordable, and clean transit systems in cities
+
+**The Causes of Environmental Conflicts: Undeterred Processes of Development, Growth, and Speculation**
+
+The growth in resource extraction conflicts including biomass (and also waste disposal conflicts, of which the most noticeable one is that arising from the production of an excessive amount of carbon dioxide), is explained by social metabolism.
+
+On the other hand, land is also a matter of private appropriation, speculation, and exploitation, and many of the urban Environmental Justice struggles are not directly related to social metabolic expansion. In cities, processes and threats such as real estate speculation, profit from redevelopment projects, capital accumulation through land use transformation, and gentrification together with urban renewal policies are at the core of many urban conflicts.
+
+ The forces that shape urban (re)development are as much local as global, and support profit seeking at the expense of the expulsion or the marginal and working class.
+ 
+ Consequently, we argue in this paper that such processes explain why the most recent aspect of Environmental Justice mobilization – and maybe, its most fundamental one, – is the defense of the right to place and territory and the right to stay without being displaced.
+ 
+ The Environmentalism of the Poor is thus also the right to remain in one's place and environment and to remain protected from waves of uncontrolled investment, land grabbing, speculatio
+
+**Dicussion and Conclusion**
+
+Environmental Justice is about intragenerational distribution as well as intergenerational distribution. It also refers to non-distributional dimensions of justice such as recognition and avoidance of participatory exclusion.
+
+In many other cases, the poor and indigenous have tried to stop degradation of the environment by defending
+their territorial rights or the sacredness of their land. In this paper, we argue that rural and urban actors in such conflicts appeal to local identities, cultural traditions, and to their right to place and place-(re)
+
+In many environmental conflicts, behind the technicalities of applicable legislation, or cost– benefit analysis or environmental impact assessment, there are power struggles within which local valuation languages do not often prevail.
+ 
+The metabolism that drives economic growth causes increased conflicts on environmental resources
+and services, extraction and appropriation, waste disposal, and land grabbing. 
+
+In cities, today capitalism, governmental actors, racism, and classism work so well together that they perversely produce environmental gentrification and exclusion through land speculation, revitalization projects, and green initiatives — while also shifting environmental burdens to the most excluded.
+
+Bringing the conservation movement closer to The Environmentalism of the Poor is often difficult, not only
+because the conservation movement consorts too closely with the engineers and economists, but also because there are financial links between the extractive industries and this movement. The factual alliance between the Cult of Wilderness and the Gospel of Eco-Efficiency is so far much stronger than the potential alliance between the Cult of Wilderness and the movement for Environmental Justice and The Environmentalism of the Poor.
 
 
