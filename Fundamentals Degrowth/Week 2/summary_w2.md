@@ -478,7 +478,22 @@ Bringing the conservation movement closer to The Environmentalism of the Poor is
 because the conservation movement consorts too closely with the engineers and economists, but also because there are financial links between the extractive industries and this movement. The factual alliance between the Cult of Wilderness and the Gospel of Eco-Efficiency is so far much stronger than the potential alliance between the Cult of Wilderness and the movement for Environmental Justice and The Environmentalism of the Poor.
 
 
-# Summary of the chapters of the book The Divide: Chapter 4-5
-## From Colonialism to the Coup
+# Summary of the chapters of the book The Divide: Chapter 4-5  From Colonialism to the Coup
 
+But the Eisenhower administration knew that it would be diffcult to justify attacking a movement that 
+was so obviously rooted in the principles of equality, justice and independence. He had to  find a way to get the American public onside. He did it in the end by drawing heavily on Cold War rhetoric: he painted developmentalism as the   rst step on the road to communism, and by connecting developmentalist governments to the USSR he was able to tar them in the minds of American citizens.
+
+Africa is stereotyped as a continent plagued by corrupt dictators, with the supposition 
+being that Africans are perhaps too ‘primitive’ to appreciate the virtues of Western- style democracy. But the truth is that ever since the end of colonialism, Africans have been actively prevented from establishing democracies. The legacy of strongman rule in Africa is largely a Western invention, not an indigenous proclivity. Western powers have thwarted countless attempts at real independence, which casts a rather ironic light on the West’s historical image as a beacon of democracy and popular sovereignty.
+
+This is economic ideology came to be known as neoliberalism. It is ‘neo’ in the sense that it revived classical market liberalism from the death it had suffered after the Great Depression, but it also added a  few new elements. The notion that market freedom is tantamount to  individual liberty was a new and distinctive feature of the ideology –   and became central to its political success in the West.And neoliberalism abandoned any pretence to neutrality in favour of a 
+more politically charged agenda: it was against subsidies and protections for the working class and regulations that supported unions, but was quite comfortable with subsidies and protections for the rich  and regulations that supported large corporations.
+
+The point to take from this sordid story is that neoliberal economic  policies were so obviously destructive to people’s lives that it was  very difficult to get them implemented in a democratic government. In most cases, the only way to bring them in was through military dictatorship and a state terror programme that would quash resistance wherever it emerged. In order to aggressively deregulate the economy, you   rst have to aggressively regulate the political sphere. Total market freedom requires total political unfreedom, even to the extent of mass imprisonment and concentration camps.
+
+The upper class got their   fix in the form of the ‘Volcker Shock’. Paul 
+Volcker, chairman of the US Federal Reserve, argued that the only  way to put an end to in ation was to dramatically raise interest rates,  clamping down on the supply of money in order to recuperate its  value. During the Reagan administration, Volcker jacked up interest  rates from the low single digits to as high as 20 per cent. It is caused 
+a massive recession, as it dramatically increased the costs of doing  business. As businesses laid off workers, unemployment rates shot to over 10 per cent. It is decimated the power of organised labour, 
+which had been the crucial counterbalance to the excesses that 
+had  led to the Great Depression. In sum, the Volcker Shock had devastating effects on the working class. It caused wages to collapse,  and mortgage defaults tripled. But it cured into ation.
 
