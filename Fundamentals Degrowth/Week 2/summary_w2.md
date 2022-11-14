@@ -497,3 +497,6 @@ a massive recession, as it dramatically increased the costs of doing  business. 
 which had been the crucial counterbalance to the excesses that 
 had  led to the Great Depression. In sum, the Volcker Shock had devastating effects on the working class. It caused wages to collapse,  and mortgage defaults tripled. But it cured into ation.
 
+Neoliberalism has failed as a tool for 
+economic development  –  but it has worked brilliantly as a tool 
+for restoring power to the wealthy elite
