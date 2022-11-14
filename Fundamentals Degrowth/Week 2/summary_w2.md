@@ -500,3 +500,35 @@ had  led to the Great Depression. In sum, the Volcker Shock had devastating effe
 Neoliberalism has failed as a tool for 
 economic development  –  but it has worked brilliantly as a tool 
 for restoring power to the wealthy elite
+
+Under the banner of the Cold War, pro- poor 
+legislation was demonised in Western media as ‘communist’, and 
+this designation gave Western governments licence to employ even 
+the most draconian tactics with impunity. Yet few of the global 
+South leaders who were assassinated or deposed during this period 
+identi  ed as communist; for the most part, they were explicitly 
+ non- aligned, and championed the third way of a Keynesian mixed 
+economy. Indeed, they were merely mimicking the policies that the 
+US and Europe had used themselves to such great effect. If we dig 
+behind the rhetoric, it becomes clear that Western support for 
+ right- wing coups had little to do with Cold War ideology, and 
+certainly nothing to do with promoting democracy (quite the 
+opposite!); the goal, rather, was to defend Western economic 
+interests. The veil of the Cold War has obscured this blunt fact 
+from view
+
+
+Developmentalism was not without its flaws. Rapid economic 
+growth, industrialisation and ‘modernisation’ came with signi  -
+cant costs. In many cases it meant pushing peasant farmers of the 
+land in order to make way for bigger, more ‘effcient’ operations. It 
+meant displacing communities in order to build dams.  It meant 
+drawing people into the labour force for the   first time, making
+them dependent on wages for survival and roping them into consumer markets. And it had environmental costs, too, such as soil 
+degradation from high- input farming, pollution from power stations and factories, and ecosystem disruption caused by industries like mining and forestry.
+
+Developmentalism was, after all, a Western model. By 
+adopting the growth- at- all- costs agenda and by looking to the 
+West as the apex of economic achievement, global South countries 
+missed their opportunity to chart an alternative trajectory from 
+the outset.
