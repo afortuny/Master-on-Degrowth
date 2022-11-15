@@ -532,3 +532,102 @@ adopting the growth- at- all- costs agenda and by looking to the
 West as the apex of economic achievement, global South countries 
 missed their opportunity to chart an alternative trajectory from 
 the outset.
+
+**Debt and the Economics of Planned Misery**
+
+But despite these setbacks, the global South was still rising. Governments across the 
+region realised that because they controlled most of the natural 
+resources and raw materials that Western powers needed for their 
+industries, they didn’t have to accept the shoddy terms of trade that 
+the West offered.
+
+The NIEO proposed that developing countries should have the right to regulate multinational corporations; the right to nationalise 
+foreign- owned assets when necessary; the right to protect their economies with tariffs; the right to cooperate with each other to 
+maintain reasonable prices for raw materials; and, most importantly, the freedom to do these things without fear of retaliation or 
+invasion by Western powers.
+
+As the 1970s wore on and people became more sensitive to issues of human rights and national sovereignty, Western voters were o en reluctant to allow such 
+neocolonial violence to be conducted in their name.
+
+Desperate to avoid any substantive redistribution of power and resources, Kissinger sought to change the narrative about inequality altogether, hoping 
+to convince the LDCs to abandon their demands for global political reform and settle for aid handouts instead.
+
+US and Europe seized de facto control over the economic destinies of developing countries, conquering them all over again 
+without spilling a single drop of blood. Instead of conquistadors on horses or secret agents in smoke-   lled rooms, this time the job was 
+done by bankers and bureaucrats –  an army of men in grey suits with briefcases, dealing in nothing more glamorous than loan 
+portfolios.
+
+So $450 billion of petrodollars poured into US banks in a very short 
+period of time. But the banks, too, faced the problem of what to do 
+with it all. Western economies were stagnating, so domestic investments were not a profitable option. Scrambling for a different plan, 
+they decided to invest the money abroad in the form of loans to 
+global South countries. What began as a fringe idea quickly turned 
+into a booming business. Many global South countries, having 
+emerged from the rubble of colonialism just two decades prior, 
+were hungry for capital to build up their economies and to fuel 
+ import- substitution industrialisation, which was taking off across the 
+region.
+
+Pushers often focused specically on dictatorships, since  –  given the absence of democratic accountability –  they were much more likely to accept these risky loans, which they could very easily use to line their own pockets, either by stealing the money directly from public accounts or by channelling it through the government and into their own contracting businesses.
+
+Debt levels in the global South skyrocketed –  particularly in Latin 
+America, which was the focus of most of the lending. And the situation was made even worse in 1979, when the Iranian Revolution 
+led to a second oil price hike that forced developing countries to 
+borrow yet more to   nance their energy needs. By 1982, total debt 
+stocks had quadrupled, from $400 billion in 1970 to more than $1.6 
+trillion twelve years later . In many countries, debt levels reached 
+well over 50 per cent of GDP. If the loans had been used to build 
+productive capacity, this might have been all right. But because 
+they were used largely to cover rising oil prices, the prospect of 
+future repayment began to seem a pipe dream.
+
+the terms of trade between global South countries and their 
+Western counterparts were continuing to deteriorate; their raw 
+material exports were worth less and less compared to the manufactured products they had to buy from abroad, so any income they 
+might have used to repay debt was quickly diminishing
+
+The loans were denominated in US dollars, and the 
+interest rates were variable. IT is meant that any significant rise in 
+US interest rates would mean the interest rates on the loans would 
+rise too, possibly pushing vulnerable poor countries into default. 
+And that’s exactly what happened in 1981, when US Federal Reserve 
+Chairman Paul Volcker jacked interest rates up as high as 21 per 
+cent . Poor countries found that they simply could not repay their 
+loans at such high rates. In 1982, Mexico took the inevitable step 
+and defaulted on part of its $80 billion debt . This move spurred 
+other heavily indebted countries –  such as Brazil and Argentina –  
+to do the same, and set off what became known as the  Third World 
+Debt Crisis.
+
+The US government stepped in 
+to bail out the banks by forcing Mexico and other countries to 
+repay their loans. They did this by repurposing the International 
+Monetary Fund. The IMF was originally designed to use its own 
+money to lend to countries with balance of payments problems, so 
+that they could keep government spending up and therefore avoid 
+another depression.
+
+the IMF would help 
+developing countries   nance their debt on the condition that they
+would agree to a series of ‘structural adjustment programmes’ . Structural adjustment programmes, or SAPs, included two basic 
+mechanisms for debt repayment. First, developing countries had to 
+redirect all their existing cash flows and assets towards debt service.
+
+So SAPs introduced a three- part cocktail: austerity, privatisation 
+and liberalisation. 
+
+IMF pushed domestic economic reforms as if they were a response to the crisis when in fact 
+they were not. The crisis was simply an excuse for rolling out an economic agenda that Washington had long been seeking to impose
+
+From the 1950s through the 1970s, Western powers had struggled 
+to prevent the rise of developmentalism in the South. What they 
+failed to accomplish through piecemeal coups and covert intervention, the debt crisis did for them in one fell swoop
+
+The brilliance of structural adjustment is that it seemed as though it was voluntary –  as though global South 
+countries chose to accept the programmes in order to get out from  under their debt. In reality, however, they were not voluntary at all
+
+Western hegemony was able to mask itself behind the façade of national governments that otherwise appeared to carry on as normal.
+
+Only two decades after global South countries gained their independence from colonialism, structural adjustment brought about 
+the end of meaningful national economic sovereignty. Economic independence, once the dream of popular movements across the global South, quickly became an illusion
+
