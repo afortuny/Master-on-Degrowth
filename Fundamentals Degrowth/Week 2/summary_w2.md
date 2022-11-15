@@ -631,3 +631,7 @@ Western hegemony was able to mask itself behind the façade of national governme
 Only two decades after global South countries gained their independence from colonialism, structural adjustment brought about 
 the end of meaningful national economic sovereignty. Economic independence, once the dream of popular movements across the global South, quickly became an illusion
 
+Robert Pollin, an economist at the University of Massachusetts, 
+calculates that developing countries lost roughly $480 billion per 
+year in potential GDP during the 1980s and 1990s as a result of 
+structural adjustment.
