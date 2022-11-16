@@ -12,6 +12,13 @@
 * In Barcelona, the generation of cooperative economies, networks against inequality such as the one against house speculation. 
 * Once goverments have influence, more spaces are created for cooperative economies.
 * Those who claim individual and pure meritocracy are the same who are strongly organized
+
+# Sacrifice Green Zones (Class notes)
+
+* Degrowth is not a principle heavily adopted in GND, even in South groups
+* Many of the movements blame consumerism as the driver for sacrifice zones
+* Cost Shifting is endogenous to the system, successfully cheapening the inputs.
 * 
+
 
 
