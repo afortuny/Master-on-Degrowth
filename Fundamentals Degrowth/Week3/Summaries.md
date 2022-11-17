@@ -36,7 +36,11 @@
 * Debt interest are further expanding the unequal exchange of goods and resources
 * The unequal exchange is sufficient to provide energy for almost all population to live decently, instead it is used for an elite residing in the north
 * It is also sufficient to provide food for 7 billion people, but it is used instead for sugar for energy drinks and cotton for the fast fashion industry
-* 
+* Net appropiation is so large that is almost entirely responsible for the increase in consumption observed recently
+* The amount of expropiation due to unequal exchange is estimate to end extreme poverty 70 times
+* The end of poverty does not require growth, requires and end to unequal exchange
+* Poor countries are sending the equivalent of a 30:1 in the "aid" they receive
+* Poverty
 
 
 
