@@ -18,6 +18,24 @@
 * Degrowth is not a principle heavily adopted in GND, even in South groups
 * Many of the movements blame consumerism as the driver for sacrifice zones
 * Cost Shifting is endogenous to the system, successfully cheapening the inputs.
+
+# Structural adjustment and unequal exchange
+* need to write a blogspot related to our course: ideas - How I will explain economic history to my daughter 
+* 1st part of the course: growth and imperalism goes together, europe industrialization required the economic submission of the south
+* 2nd part the imperial order collapsed, due to the anti colonial movement
+* Today we will cover what means that some countries depend on structural demands from IMF compromising its economic sovereneity
+* the WTO was responsible since 1995 for breaking any trade protection of the economies of the South
+* the size of the economy conditions bargaining power, even ifeach country has one vote
+* the green room is what key decisions were taken without "developing countries"
+* Most subsisidies and tariffs are prohibited and consider market unfair
+* The apparent equally level playing field actual happens with countries that are at very different of industrial development
+* In practice, big economies are breaking the rules with impunity, while poor countries are mercilessly sued
+* The price gap ration between the north and the south keep expanding since we have records, with the exeption of China
+* These price inequality provides an unequal exchange and make wellfare gaps to remain high
+* We can show empirically the massive ratios of emboddied work, land and resources shipped to the north due to unequal exchange
+* Debt interest are further expanding the unequal exchange of goods and resources
+* The unequal exchange is sufficient to provide energy for almost all population to live decently, instead it is used for an elite residing in the north
+* It is also sufficient to provide food for 7 billion people, but it is used instead for sugar for energy drinks and cotton for the fast fashion industry
 * 
 
 
