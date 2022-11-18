@@ -40,7 +40,31 @@
 * The amount of expropiation due to unequal exchange is estimate to end extreme poverty 70 times
 * The end of poverty does not require growth, requires and end to unequal exchange
 * Poor countries are sending the equivalent of a 30:1 in the "aid" they receive
-* Poverty
+* Poverty can be eradicated with fair exchange terms
+
+# Social Metabolism, Ecological Distribution Conflicts, and Languages of Valuation (paper summary)
+
+* Several studies show that in contrast of the assumption, the poor at equally if not more concern about the environment
+* Environmental problems are often a threat to material welfare
+*  traditional Left in southern countries still tends to see environmentalism as a ‘‘luxury of the rich,’’
+*  The poor, because of their direct reliance on natural resources outside the market, are often careful environmental managers
+*  most significant beneficiaries of forest biodiversity and ecosystem services are the poor, and the predominant impact of a loss or denial of these inputs is on
+the well-being of the poor
+* This does not imply that poor people are always on the side of conservation,
+which would be patently untrue. What it means is that in many conflicts of resource
+extraction or pollution, the local poor people (indigenous or not) are often on the
+side of conservation not so much because they are self-conscious environmentalists
+but because of their livelihood needs and their cultural values
+* MEFA is a set of methods for describing and analyzing socio-economic
+metabolism. It examines economies as systems that reproduce themselves not only
+socially and culturally, but also physically through a continuous exchange of energy and
+matter with their natural environments and with other socio-economic systems.
+* Economists, however, did not adopt a socio-metabolic view. Are economic
+historians intellectual servants of the economists? In any case, there was no
+economic-environmental historiography counting the flows of energy and
+materials.
+
+ 
 
 
 
