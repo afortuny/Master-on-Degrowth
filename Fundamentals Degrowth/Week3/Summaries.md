@@ -64,6 +64,10 @@ historians intellectual servants of the economists? In any case, there was no
 economic-environmental historiography counting the flows of energy and
 materials.
 
+# The Case for Degrowth ( notes from the book not included in the notes)
+
+* We should not tax what sustains the people (work) and tax what it destroys (pollution and inequality)
+* 
  
 
 
