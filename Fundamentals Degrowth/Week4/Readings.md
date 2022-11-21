@@ -44,6 +44,7 @@ High-income countries have a greater degree of responsibility for climate damage
 * The Countries of the South suffer more because of the biospheric location but also due to the lack of sufficient infratestructure.
 * Rich nations have overshot their fair shares of the 1.5 degree and 2 degree budgets.
 * Net zero in the North means 3 times appropiation of their fair share
+* Reparation calculation uses carbon pricing from IPCC, estimated based on the amount required to reach the net zero goal
 * 
 
 
