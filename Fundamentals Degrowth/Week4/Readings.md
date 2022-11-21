@@ -41,6 +41,9 @@ High-income countries have a greater degree of responsibility for climate damage
 * Energy use in the high income countries is on the aggregate way higher, around 6-7 times higher than the 30gj/people required
 * There is a cummulative appropiation of the commons of the atmosphere of 90% from the North, while 90% of the costs go to the North and 98% of the deaths
 * As of 2015, most countries in Africa, Latin America and South Asia are within their fair share.
+* The Countries of the South suffer more because of the biospheric location but also due to the lack of sufficient infratestructure.
+* Rich nations have overshot their fair shares of the 1.5 degree and 2 degree budgets.
+* Net zero in the North means 3 times appropiation of their fair share
 * 
 
 
