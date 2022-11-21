@@ -45,6 +45,9 @@ High-income countries have a greater degree of responsibility for climate damage
 * Rich nations have overshot their fair shares of the 1.5 degree and 2 degree budgets.
 * Net zero in the North means 3 times appropiation of their fair share
 * Reparation calculation uses carbon pricing from IPCC, estimated based on the amount required to reach the net zero goal
+* Emissions instensity per capita misses the imposed emissions from the economic system (lack of public transport or bike lanes, lack of proper heating supplies or insolutation).
+* We should focus on investment emissions instead,where the top 10% is responsible for 50%
+* We overshoot global resource use by a factor of 2, 30 years ago, and 4x ince 1980.
 * 
 
 
