@@ -6,4 +6,5 @@
 * Those who owns money, decide where the production and labor is localized. 
 * free services are deflationary as they reduce the demand for monetized services.
 * Job guarantee helps to provide sufficient necessary goods and services
-* 
+* The South has a huge leverage to pull degrowth : all resources...
+*
